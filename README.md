@@ -1,5 +1,5 @@
 
-# Hi, I'm Sanad! 👋
+# Hi, I'm Sanad Alawi! 👋
 
 
 ## 🚀 About Me
